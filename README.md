@@ -1,1 +1,1 @@
-### Welcome, enjoy your stay.
+### Welcome, enjoy your stay
